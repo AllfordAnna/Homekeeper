@@ -1,8 +1,11 @@
- The Homekeeper
-(Dedicated to the memory of the author's son Zhenechka)
-Chapter 1
-How I got myself a human.
-Kuzya the Cat's story.
+ The Homekeeper  
+
+
+(Dedicated to the memory of the author's son Zhenechka)  
+Chapter 1  
+
+How I got myself a human.  
+Kuzya the Cat's story.  
 I have been living in this world for so long, and still wonder how people can be so limited, narrow-minded and arrogant. Homehow they believe that they  are the crown of creation, the kings of nature and all that rubbish. It makes me laugh how convinced they are of this nonsence. Unbelivable, but they are sure, that they are the ones who keep us cats as pets - while in reality, of course, everything is completely different. And my own story is a perfect example of it.
 Let me start, perhaps, with the fact that I showed all the signs of an extraordinary mind even in my childhood. I can even say in my early childhood. And while the other five of my brothers and sisters were just drinking mummy’s milk and sleeping in our soft basket, I already began to think about my future. While licking us and putting us to bed, our mummy also explained to us how the world works. And her purring helped me to realize that those huge two-legged hairless creatures who  look into our basket and make funny sounds now and then are, in fact, not as useless as they seem at first glance. It turned out that nature created them so that we, cats - the real kings of nature, please keep it in mind! – have quieter, cozier and more comfortable living. Mum explained that people, of course, are extremely stupid and often annoying, but they provide us with warmth, peace and delicious food. For this, you can tolerate their silliness  and other minor inconveniences, such as their stupid “puss-puss-puss” or the desire to play with you and cuddle you when you are absolutely not in the mood for it.
 Haven't you forgotten that from day one I was blessed with an extraordinary mind? And therefore, quite quickly I began to understand not only the language of cats, but the language of humans and other creatures. We - cats can understand better than anyone else those who wander around the human race and whom people call evil spirits. We just call them neighbors... However, let's talk more about it later. In the meantime, I want totell you about how I was choosing a human for myself (people name the word “master”, which is a big mistake). From the conversations of those two-legged creatures who were always walking next to our basket, I quickly realized that, alas, we were not meant to stay with our warm mother for a long time. Each of us, mother’s children, was planned to be given, as they said, “in good hands.” And then I realized that I had to choose these hands myself - otherwise I could regret it much later.
